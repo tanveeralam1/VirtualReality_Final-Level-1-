@@ -14,4 +14,7 @@ Example:
 Repeat for any of the three folders. 
 
 
+https://docs.google.com/presentation/d/1sFKQccE3Lk5KmKzu6cSNUwyEnVVzMaGxR3H0lUR1jHc/edit?usp=sharing
+
+
 
